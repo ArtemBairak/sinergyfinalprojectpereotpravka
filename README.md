@@ -1,0 +1,2 @@
+# sinergyfinalprojectpereotpravka
+Итоговый проект переотправка
